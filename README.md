@@ -3,6 +3,8 @@
 [Gabriel Soares](https://www.linkedin.com/in/gabriel-soares-3098782b0/)
 
 
+![image](https://github.com/user-attachments/assets/e39b7ecd-9d2d-4ceb-99ab-202f1424b8d9)
+
 ---
 
 ## Sobre
